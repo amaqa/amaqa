@@ -2,7 +2,7 @@
 - 👀 I’m interested in ..DATA ANALYST.
 - 🌱 I’m currently learning ...DATA ANALYST USING MICROSOFT EXCEL
 - 💞️ I’m looking to collaborate on ..MANY PROJECTS.
-- 📫 How to reach me ...ONMY EMAIL 9amakaezea49@gmail.com)
+- 📫 How to reach me ...ONMY EMAIL amakaezea49@gmail.com)
 - 😄 Pronouns: ...
 - ⚡ Fun fact:   ...
 
